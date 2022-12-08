@@ -1,5 +1,7 @@
 # Mia
 
+[Home](https://angela7201.github.io/Gonzaleza.github.io/) [Ganyu](https://angela7201.github.io/Gonzoa.github.io/)    [Klee](https://angela7201.github.io/-Gonzala3.github.io/)  
+
 Element: Dendro
 
 The new Genshin Impact character would be a powerful mage, with the ability to manipulate the elements of nature. They would have an affinity for fire, water, earth, and air, and be able to use them as weapons or to craft powerful spells. They would possess a variety of magical abilities, and would be able to summon and control familiars of all sorts. In addition, they would be able to fly, teleport, and use teleportation portals to quickly get around. The character would be wise and knowledgeable, and would be a great asset to any party.]
